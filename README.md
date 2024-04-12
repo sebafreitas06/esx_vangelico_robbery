@@ -28,3 +28,16 @@ start utk_fingerprint
 [VIDEO]
 
 https://streamable.com/xfe76h
+
+
+![image](https://github.com/sebafreitas06/esx_vangelico_robbery/assets/166455094/33ee15ea-0d91-4e76-92de-958477538dfa)
+
+![image](https://github.com/sebafreitas06/esx_vangelico_robbery/assets/166455094/27a77fde-409c-45e0-aaa9-1031c28af058)
+
+![image](https://github.com/sebafreitas06/esx_vangelico_robbery/assets/166455094/126cb372-e1c4-4ae5-b0f0-680cf79cb2c7)
+
+![image](https://github.com/sebafreitas06/esx_vangelico_robbery/assets/166455094/df597161-4f7a-4c91-b445-0599f2c3096a)
+
+![image](https://github.com/sebafreitas06/esx_vangelico_robbery/assets/166455094/880ff188-1cd6-4001-a683-f8c0e7cd0fe5)
+
+![image](https://github.com/sebafreitas06/esx_vangelico_robbery/assets/166455094/d9bf817b-af0b-41ca-b720-db4acadf4544)
